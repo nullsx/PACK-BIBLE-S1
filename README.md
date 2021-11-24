@@ -1,1 +1,0 @@
-# PACK-BIBLE-S1
